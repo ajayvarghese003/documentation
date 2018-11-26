@@ -8,7 +8,9 @@ For any queries, dont contact the administrator. Application has its own limitat
  - Learn how to live
  - Be a valuable Human
 
+
 > WE DONT GIVE A DAMN.
+
 
 Thank you for ***reading***
 
